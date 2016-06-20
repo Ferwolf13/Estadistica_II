@@ -2,4 +2,4 @@ Considerando las hipótesis planteadas y siendo que el objetivo es entender que 
 
 Primera parte: Planteamiento de las hipótesis  
 
-
+Segunda parte: Contrastes
